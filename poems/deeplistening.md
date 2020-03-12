@@ -1,12 +1,12 @@
 Deep Listening  Mary-Elizabeth Cotton  
 Let us listen…  
   
-Just for a while  
-let us silence our minds  
-and open our hearts.  
+   Just for a while  
+   let us silence our minds  
+   and open our hearts.  
   
-Just for a while  
-let us listen from within.  
+      Just for a while  
+      let us listen from within.  
   
 Listen…  
 Not to gain knowledge,  
